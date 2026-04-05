@@ -1,15 +1,11 @@
-hi i love musa
+![image](https://i.postimg.cc/c4WgZ3qs/IMG-0885.png)
 
-![image](https://github.com/user-attachments/assets/55bbb8ab-cfb2-49bb-87a1-bc1419a62b38)
+◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣♪ ℛeverend/ℛev  ͜͝ ̣̣̥| ̥̈◟ ͜𓏼˚ ᴏʀ 𝓝icole
+͜𓏼✚၄◞ ྀྀᧆ 𝟏𝟓 & A̲utistic ໒ྀི✙ ̫𓏻
 
-![image](https://github.com/user-attachments/assets/28510899-3f07-4377-bc38-f0e43287eb2c)
+![image](https://i.postimg.cc/c4WgZ3qs/IMG-0885.png)
 
-![image](https://github.com/user-attachments/assets/1a421eaf-0283-420b-8156-9cb8bf821756)
+𝄞⨾𓍢ִ໋ Look in [Strawpage](https://revlovespepsi.straw.page/) for more ۫ ׅㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+╰ 𝐒ign {atabook](https://revclaret.atabook.org/)  ̻̻̊⏦𓏺𓏫 ྀ
 
-![image](https://github.com/user-attachments/assets/a2358312-42e8-4e92-8371-baf01750ed39)
-
-![image](https://github.com/user-attachments/assets/208b004d-9ecb-41eb-948e-4ff659399265)
-
-![Uploading image.png…]()
-
-aa
+![image](https://i.postimg.cc/c4WgZ3qs/IMG-0885.png)
