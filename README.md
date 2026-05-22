@@ -1,6 +1,6 @@
 ![image](https://i.postimg.cc/c4WgZ3qs/IMG-0885.png)
 
-◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣♪ ℛeverend/ℛev  ͜͝ ̣̣̥| ̥̈◟ ͜𓏼˚ ᴏʀ 𝓝icole 
+◟ ̣̣̥͜♫ ྀིྀིྀིྀིྀི ˚̣̣̣♪  ͜͝ ̣̣̥| ̥̈◟ ͜𓏼˚ 𝓝icole 
 ͜𓏼✚၄◞ ྀྀᧆ 𝟏𝟓 & A̲utistic ໒ྀི✙ ̫𓏻
 
 ![image](https://i.postimg.cc/c4WgZ3qs/IMG-0885.png)
